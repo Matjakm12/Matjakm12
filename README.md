@@ -22,6 +22,6 @@ You can click the Preview link to take a look at your changes.
 
 َِ🛹 ‹ ٰ𝖴𝗉 َ𝖳ْ𝗂𝖬ِ𝖾 : {uptime}
 
-•━═━═━═━═━•
+• ━═━═━═━═━ •
+ف
 
-• ᗩ - : {mention} ❤️‍🔥 . .
